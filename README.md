@@ -1,0 +1,2 @@
+# code
+study for life
